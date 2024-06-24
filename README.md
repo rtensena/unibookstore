@@ -1,1 +1,1 @@
-Projek untuk Bootcamp pelatihan dari Badan Nasional Sertifikat Profesi - Junior Web Progammer
+Projek untuk Bootcamp dari Badan Nasional Sertifikat Profesi - Junior Web Progammer
